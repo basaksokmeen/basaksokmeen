@@ -6,4 +6,4 @@
 - 📘 I'm currently educating at Mersin University/Management Information Systems
 - 📫 How to reach me: basaksokmeen@gmail.com
 
--->
+
